@@ -1,3 +1,3 @@
 Name: Luis Diego Hernandez
 File: hernandez.md
-Hobby: Gym
+Hobby: Workout
