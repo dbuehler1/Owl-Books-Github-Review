@@ -1,2 +1,2 @@
 Daniel Buehler
-Playing and Watching Ice Hockey
+Watching and playing ice hockey
